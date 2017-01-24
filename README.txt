@@ -1,2 +1,3 @@
-Jan Jasiñski
+Jan Jasiï¿½ski
+nr. Albumu 285390
 
